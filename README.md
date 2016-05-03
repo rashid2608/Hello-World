@@ -2,5 +2,5 @@
 
   Hi Humans
   my name is Muhammed Harun.
-  i am 2nd year student of department of biotechnology indian institute of technology.
+  i am 2nd year student of department of biotechnology indian institute of technology kharagpur.
   my hobbies are playing cricket and tennis.
